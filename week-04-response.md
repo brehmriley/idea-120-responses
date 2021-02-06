@@ -1,0 +1,7 @@
+The three messages Barthes lays out are linguistic, coded iconic, and non coded iconic. He uses these three terms to explain the thought process behind how a viewer witnesses an image. Linguistic is a very important part of seeing an image as it normally is a literal message that helps guide the viewer to make conclusions on the image as a whole if that is either the literal interpretation or symbolic meaning behind said image. Being able to guide the viewer with linguistic language to help them understand the meaning trying to be conveyed is super important. Without these linguistic meanings it makes interpreting an image difficult to fully comprehend. As Barthes said “absence of meaning is filled with meaning”.
+
+The image I picked is an overweight man at what I can only assume is a cubs game. He is smoking a cigarette and has facial hair. This image is the epitome of an unhealthy midwesterner. The linguistic message “The most Chicago picture of all time”.  You see his cubs hat with pins on it along with what looks like a highschool t-shirt. With the positive connotation of the linguistic message you look at this man and it focuses my attention away from what my mother has told me about cigarettes but to the fact that he is enjoying himself by eating well, enjoying a cigarette and watching his team play. The symbolic is him being an epitome of what we as Chicagoans have come to accept and recognize as the stereotypical Chicago man.
+
+
+____PS____
+I am trying to figure out how to add the image...
